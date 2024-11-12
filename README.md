@@ -1,4 +1,4 @@
-Van a fiók mert kellett IKT-ra de amúgy jelenleg nem kell még.
+Van a fiók mert kellett IKT-ra de amúgy minek?
 
 Ti amúgy szeretitek a sajtot?
 
